@@ -7,3 +7,6 @@ POST CORONA
 
 극한의 세계
 
+https://cukpostcorona.ml/works.html
+
+https://cukpostcorona.ml/details/src_mbtistar/main
